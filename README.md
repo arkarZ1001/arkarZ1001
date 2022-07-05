@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate with u guys in the future.
 - 📫 You can reach out to me via email zaw356809@gmail.com
 
-Thanks...
+Thanks a lot...
 
 <!---
 arkarZ1001/arkarZ1001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
